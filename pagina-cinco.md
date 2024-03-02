@@ -31,6 +31,8 @@ Matías con mucha ira dijo:
 Al escuchar esto, impactado por lo dicho por su hijo, Gabriel se levantó de la mesa y gritó:
 > ¡Te prohibo salir de aquí!
 
+Matías terminó toda discusión con una última frase:
+
 > ¡Ay papá! La decisión ya está tomada, en dos días me voy, quieran o no.
 >
 > Ahora bien, usted ya tiene la compañía que siempre necesitó, está sentada al lado suyo.
