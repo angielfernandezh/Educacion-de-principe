@@ -6,9 +6,9 @@ Para Gabriel su hijo lo era todo, y hacia lo imposible para mantener feliz a su 
 nada. Él decía que Matías era el mejor niño del mundo que nadie se comparaba a él y que tenía
 suerte de tenerlo como su hijo.
 
-**Tienes dos opciones para continuar la historia:**
+### **Tienes dos opciones para continuar la historia:**
+ ¿Deseas seguir la historia del [papá](pagina-dos-papa.md)? o
+ 
+ ¿Deseas ver la del [hijo](pagina-dos-hijo.md)?
 
-¿Deseas ver la historia del [papá](pagina-dos-papa.md)? o
-¿Deseas ver la del [hijo](pagina-dos-hijo.md)?
-
-*Recuerda que la historia que no escojas seguirá transcurriendo...*
+## *Recuerda que la historia que no escojas seguirá transcurriendo...*
