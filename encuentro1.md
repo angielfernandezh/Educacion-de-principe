@@ -43,7 +43,7 @@ Matías se sentió muy triste, aunque sabía que su papá lo amaba, algo en él 
 ---
 
 ### **Nueva oportunidad: ¿Con qué historia quieres continuar:**
- La historia del [papá](pagina-cuatro-papa.md) o
+ La historia del [papá](pagina-cuatro-papa2.md) o
  
  La historia del [hijo](pagina-cuatro-hijo.md)
 
