@@ -10,10 +10,6 @@ Lee el mensaje de Luisa aquí
 Al leerlo se dio cuenta que eran muy malas noticias y que esto cambiaría
 la vida de su familia.
 
-que a causa de una asociación empresarial, tenía dos opciones: aceptar el puesto de
-director de marketing en otra ciudad, la cual quedaba bastante lejos en donde residía o dejar de
-laborar.
-
 Gabriel rápidamente se dirigió donde Laura y le comento lo sucedido, ella un poco consternada dijo
 que era mejor que el aceptara el trabajo y que todos se mudaran a la nueva ciudad, ya que ella no
 ganaba tanto como él para mantener los lujos que ellos llevaban. Él felizmente le agradeció por su
