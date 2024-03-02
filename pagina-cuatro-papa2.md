@@ -8,4 +8,4 @@ Desde que Matías conoció a Laura, papá e hijo se distanciaron aún más uno d
 
 Hasta que llegó un día que lo cambiaría todo...
 
-## Continúa la historia de [Matías](pagina-cuatro-papa.md)
+## Continúa la historia de [Gabriel](pagina-cuatro-papa.md)
