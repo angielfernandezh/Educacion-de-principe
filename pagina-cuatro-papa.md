@@ -2,8 +2,10 @@ Un día como otro, Gabriel llegó a su trabajo, revisó sus correos como lo sol�
 de un correo algo inusual. Al mismo tiempo recibió un WhatsApp de Luisa, una compañera de trabajo,
 con una preocupación.
 
+### ¿Qué quieres abordar primero?
+Lee el correo [aquí](correorrhh.md)
 Lee el mensaje de Luisa aquí
-Lee el correo aquí
+
 
 Al leerlo se dio cuenta que eran muy malas noticias y que esto cambiaría
 la vida de su familia.
