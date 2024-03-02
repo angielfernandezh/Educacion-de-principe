@@ -21,7 +21,7 @@ No tendrían que separarlo de sus amigos y sumar una nueva tensión entre la ya 
 relación padre-hijo.
 
 Después planear y costear lo necesario para mudarse, se tomó la decisión de hablar con Matías en la noche,
-hora en que él llegaba de su práctica de fútbol.
+hora en que él llegaba de su práctica de natación.
 Para Gabriel la decisión y opinión de su hijo era una de las más importantes,
 incluso con mayor relevancia que la de Laura.
 
