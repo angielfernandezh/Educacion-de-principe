@@ -2,9 +2,9 @@ Gabriel al amar tanto a su hijo quería presentárselo a todo el mundo y que pud
 maravilloso que era. Por esta razón organizo una cena con todos sus amigos y personas cercanas a
 él para hacer la presentación de Matías.
 
-Las personas comenzaron a llegar y el con mucho ánimo les presentaba a Matías.
+Las personas comenzaron a llegar y él con mucho ánimo les presentaba a Matías.
 
-- Miren Todo él es mi hijo Matías mi orgullo, mi razón de ser.
+> ¡Miren todos! Él es mi hijo Matías, mi orgullo, mi razón de ser.
 
 Todos saludaban a Matías con gran alegría, pero no lo veían tan excepcional como su papá lo veía,
 El niño lo único que hacía era saludar con una sonrisa algo fingida en su rostro, tratando de ser
