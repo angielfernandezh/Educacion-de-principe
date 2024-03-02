@@ -13,7 +13,9 @@ por lo cual esperaba ver a su papá allí.
 
 Sacó su celular, llamó una, dos veces.
 
-Envío este mensaje.
+Envío [este mensaje.](msj_maticompetencia.md)
+
+---
 
 Al llegar el momento de la prueba, se acercó al circuito de natación y se percató que su padre
 no estaba en el asiento que usualmente se hacía, se le hizo un poco raro pero pensó que
@@ -23,4 +25,4 @@ simplemente se le había hecho tarde.
 
 Matías se retiró, a pesar de tanto esfuerzo, no logró ganar...
 
-## Continúa la historia aquí
+## Continúa la historia [aquí](encuentro1.md)
