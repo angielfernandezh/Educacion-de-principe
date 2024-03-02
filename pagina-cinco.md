@@ -1,26 +1,41 @@
-Llego la noche y Gabriel junto a Laura estaban esperando a que Matías bajara a comer. Se sentaron
-todos en la mesa y comenzaron hablar como suelen hacerlo normalmente preguntándose cómo les
-había ido en el día.
+Llegó la noche.
 
-En ese momento Laura no espero un momento oportuno y dijo que se iban a ir de la ciudad que al
-estar Matías en el último año no iba ser difícil para el alejarse de sus amigos además que debía elegir
-una universidad para estudiar, y aprovechando eso podía estudiar en una universidad que quedara
-en la nueva ciudad a la cual se iban a mudar.
+Gabriel junto a Laura estaban esperando a que sonara la puerta. 
 
-Rápidamente Gabriel le tomo la mano haciéndole una mirada fría, ella entendió y no siguió
-hablando. Matías sin decir nada solo pensaba que había sido un tonto al haber considerado no irse
-al servicio militar por que darse con su papá. Cortando el silencio incomodo Gabriel le pregunto a
-su hijo que el que pensaba de la situación que si estaba de acuerdo con ella.
+**Golperaron.**
 
-Matías tenía mucho malgenio en ese momento y le dijo al papá que no se preocupara que él no se
-iba a quedar en la ciudad que estaban pero que tampoco iba a irse con ellos, que lo pensó mucho y
-él quería prestar el servicio militar y alejarse lo que más pudiera de Gabriel.
+Era Matías, lo saludaron y se sentaron todos en la mesa, comenzando a hablar,
+como de costumbre, cómo les había ido en su día.
 
-Al escuchar esto Gabriel impactado por lo que estaba diciendo su hijo se levantó de la mesa y
-gritando le dijo a Matías que le prohibía que se fuera a prestar el servicio militar.
+En ese momento Laura no espero un momento oportuno y dijo:
+> ¡Nos mudamos, Mati! La empresa de Gabriel se muda a La Arboleda. Siento que será
+> una nueva oportunidad para nosotros como familia. Ya hicimos costos y encontramos un lugar.
+> Muy cerca de la Universidad de la ciudad.
 
-Matías dijo que él no era nadie para prohibirle eso y que él se iba en dos días sin importar si lo
-apoyaba o no, y dijo que al fin y al cabo ya tenía compañía que no tenía nada por qué preocuparse.
+Rápidamente Gabriel tomó la mano de Laura y con una mirada fría, hizo entender a Laura que no continuara.
 
-Al siguiente día Gabriel fue a la habitación de Matías y se dio cuenta que no estaba allí. Rápidamente
-se dirigió al cuartel militar, al llegar pregunto por el alistamiento del servicio militar y le informaron, que ya habían partido al amanecer.
+Matías sin decir nada solo pensaba que había sido un tonto al haber considerado no irse
+al servicio militar por quedarse cerca de su padre. Cortando el silencio incomodo,
+Gabriel le preguntó a su hijo:
+
+> ¡Mati! Necesito saber qué piensas, con el silencio no sabré si estás de acuerdo o no.
+
+Matías con mucha ira dijo:
+> Ustedes no necesitan saber qué pienso yo. ¡Ya ustedes se mudaron! Ya hay costos, ya hay casa,
+> hasta ya hay Universidad.
+> 
+> Llevo pensando en prestar servicio militar hace tiempo ya, este es como el empujón que necesitaba.
+>
+> ¡Papá, usted no me necesita! Pueden mudarse, no hay que preocuparse, yo me quiero alejar.
+
+Al escuchar esto, impactado por lo dicho por su hijo, Gabriel se levantó de la mesa y gritó:
+> ¡Te prohibo salir de aquí!
+
+> ¡Ay papá! La decisión ya está tomada, en dos días me voy, quieran o no.
+>
+> Ahora bien, usted ya tiene la compañía que siempre necesitó, está sentada al lado suyo.
+
+---
+
+Al siguiente día, Gabriel fue a la habitación de Matías y se dio cuenta que no estaba allí.
+Rápidamente se dirigió al cuartel militar, al llegar preguntó por su hijo y le informaron que ya habían partido al amanecer.
