@@ -1,9 +1,12 @@
 Un día como otro, Gabriel llegó a su trabajo, revisó sus correos como lo solía hacer, pero se percató
-de un correo algo inusual. Al leerlo se dio cuenta que eran muy malas noticias y que esto cambiaría
-la vida de su familia.
+de un correo algo inusual. Al mismo tiempo recibió un WhatsApp de Luisa, una compañera de trabajo,
+con una preocupación.
 
+Lee el mensaje de Luisa aquí
 Lee el correo aquí
 
+Al leerlo se dio cuenta que eran muy malas noticias y que esto cambiaría
+la vida de su familia.
 
 que a causa de una asociación empresarial, tenía dos opciones: aceptar el puesto de
 director de marketing en otra ciudad, la cual quedaba bastante lejos en donde residía o dejar de
