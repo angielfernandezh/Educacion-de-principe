@@ -3,23 +3,26 @@ de un correo algo inusual. Al mismo tiempo recibió un WhatsApp de Luisa, una co
 con una preocupación.
 
 ### ¿Qué quieres abordar primero?
-Lee el correo [aquí](correorrhh.md)
-Lee el mensaje de Luisa aquí
+- Lee el correo [aquí](correorrhh.md)
+- Lee el mensaje de Luisa [aquí](msj_luisa.md)
 
 
-Al leerlo se dio cuenta que eran muy malas noticias y que esto cambiaría
-la vida de su familia.
+Al leerlo se dio cuenta que eran muy malas noticias y que no sólo cambió la vida de su amiga
+Luisa, también cambiará la de su familia.
 
-Gabriel rápidamente se dirigió donde Laura y le comento lo sucedido, ella un poco consternada dijo
-que era mejor que el aceptara el trabajo y que todos se mudaran a la nueva ciudad, ya que ella no
-ganaba tanto como él para mantener los lujos que ellos llevaban. Él felizmente le agradeció por su
-comprensión y comenzaron a buscar una residencia, y lo mejor era que Matías estaba en último año
-del colegio y ya estaba por terminar, lo cual hacia más fácil todo ya que no tenían que sepáralo de
-sus amigos del colegio.
+Gabriel rápidamente se dirigió donde Laura y le comentó lo sucedido, ella un poco consternada dijo:
+> Yo no he podido surgir en esta ciudad. Esta nueva oportunidad será lo mejor para nosotros.
+> Un lugar distinto que cambie tu perspectiva de vida y a mí me permita conseguir
+> algo nuevo y ayudarte con los gastos que no alcanzo a cubrir.
 
-Después de mirar todo con Laura y cuadrar todo lo necesario para mudarse, los dos tomaron la
-decisión de hablar del tema con Matías por la noche, ya que para él la decisión de su hijo era una
-de las más importantes, hasta se podría decir que tenía más relevancia la de él que la de Laura.
+Él felizmente le agradeció por su comprensión y comenzaron a buscar una residencia.
+Lo mejor era que Matías estaba en su último año de bachillerato a punto de terminar.
+No tendrían que separarlo de sus amigos y sumar una nueva tensión entre la ya deteriorada
+relación padre-hijo.
 
-Vuelve al inicion para leer la versión del hijo [página uno](pagina-uno.md)
-si ya leiste las dos versiones sigue la historia [página cinco](pagina-cinco.md)
+Después planear y costear lo necesario para mudarse, se tomó la decisión de hablar con Matías en la noche,
+hora en que él llegaba de su práctica de fútbol.
+Para Gabriel la decisión y opinión de su hijo era una de las más importantes,
+incluso con mayor relevancia que la de Laura.
+
+## Continúa la historía [aquí](pagina-cinco.md)
