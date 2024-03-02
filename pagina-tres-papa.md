@@ -18,4 +18,4 @@ sentimientos de Gabriel.
 
 Hasta cuando...
 
-## Continúa la historia aquí
+## Continúa la historia [aquí](encuentro1.md)
