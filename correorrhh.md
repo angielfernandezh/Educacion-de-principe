@@ -8,7 +8,7 @@
 > *¡Aquí entras tú!*
 >
 > Esta reorganización traerá consigo un nuevo ambiente laboral en las nuevas instalaciones Fourth.ai
-> ubicadas en la ciudad de Medellín. No solo tendrás más libertad, sino que gozarás con mayores
+> ubicadas en la ciudad de Arboleda. No solo tendrás más libertad, sino que gozarás con mayores
 > beneficios.
 > El traslado se llevara a cabo durante el mes de marzo y abril y la confirmación de continuidad de los
 > empleados deberá ser confirmada al finalizar el mes.
