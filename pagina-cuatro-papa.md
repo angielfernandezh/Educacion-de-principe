@@ -1,8 +1,11 @@
-Un día como otro Gabriel llego a su trabajo, reviso sus correos como lo solía hacer, pero se percató
+Un día como otro, Gabriel llegó a su trabajo, revisó sus correos como lo solía hacer, pero se percató
 de un correo algo inusual. Al leerlo se dio cuenta que eran muy malas noticias y que esto cambiaría
 la vida de su familia.
 
-El correo decía que a causa de una asociación empresarial, tenía dos opciones aceptar el puesto de
+Lee el correo aquí
+
+
+que a causa de una asociación empresarial, tenía dos opciones: aceptar el puesto de
 director de marketing en otra ciudad, la cual quedaba bastante lejos en donde residía o dejar de
 laborar.
 
